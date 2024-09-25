@@ -20,6 +20,13 @@ Varias actividads en clase
 # Foto del resultado
 ![image](https://github.com/user-attachments/assets/34524454-b17c-4cac-8294-119c39fc44b6)
 
+# Foto del programa #5 Adivina el numero
+![image](https://github.com/user-attachments/assets/46d87b32-7030-4f90-87b7-8d6c05922763)
+# Foto del resultado
+![image](https://github.com/user-attachments/assets/bf229db2-984d-4e21-b713-fe8c22b9238f)
+
+
+
 
 
 
